@@ -1,4 +1,4 @@
-As a professional developer, this task will enable you to:
+As a professional developer, this task will enabled me to:
 
 Master Advanced Project Initialization:
 
